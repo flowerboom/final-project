@@ -1,1 +1,1 @@
- not finished
+finish half of all
